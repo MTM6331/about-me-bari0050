@@ -1,0 +1,1 @@
+Hello, my name is Catherine. This summer, I worked fulltime and rewarded myself by going to British Columbia and Alaska. I saw some mountains, watched some waves, and ate some salmon. It was a good time.
